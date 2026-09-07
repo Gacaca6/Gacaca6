@@ -85,4 +85,4 @@ entirely in hand-built SVG · `Wayfind` scripture by how you feel, in Kinyarwand
 BSc Electrical Engineering in progress, University of Rwanda. Open to roles, contracts
 and collaborations — remote worldwide or on site in Kigali.
 
-📫 **gacacagodwin@gmail.com** · [x.com/GacacaGodwin](https://x.com/GacacaGodwin)
+📫 **gacacagodwin@gmail.com** · [LinkedIn](https://www.linkedin.com/in/gacacagodwin) · [X](https://x.com/gacacagodwin) · [WhatsApp](https://wa.me/250791631361) (+250 791 631 361)
